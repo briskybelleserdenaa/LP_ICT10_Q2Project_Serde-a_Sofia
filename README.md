@@ -1,0 +1,1 @@
+# LP_ICT10_Q2Project_Serde-a_Sofia
